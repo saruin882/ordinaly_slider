@@ -1,4 +1,3 @@
-saruinworks
+ordinaly_slider
 ===========
-
-saruin isozawa's workings
+Please wait a moment ／ 作成に向け準備中
